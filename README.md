@@ -6,10 +6,6 @@
 
 
 
-![umairhamid](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/dece5f124024167.60fb03546918b.gif)
-
-
-
 
 
 
